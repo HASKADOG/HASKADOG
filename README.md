@@ -1,1 +1,1 @@
-Obtain to find a full-time job working as a full-stack/frontend/backend developer to develop, maintain and design software. My dream is to find a job where I can improve my programming skills and exchange experience with senior developers
+Obtain to find a full-time job as a backend developer to develop, maintain and design software. My dream is to find a job where I can improve my programming skills and exchange experience with senior developers
